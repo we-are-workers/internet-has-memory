@@ -1,3 +1,3 @@
-#请使用 日期-事件 命名文件夹
+#请使用 年-月-日-事件 命名文件夹
 
-#Please use, date-event, named folder
+#Please use, yyyy-MM-dd-event, named folder
