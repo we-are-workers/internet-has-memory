@@ -45,3 +45,5 @@
 9. [央视评论：奋斗不能演变成“拿命换钱” ．凤凰网资讯[引用日期2021-01-05]](https://baike.baidu.com/reference/55705065/6dbdDEiKIY_IufXMSYjN9lOQMzITAdNLL4QWP1Lij2v1c_RdVhgjdLM8bt2IPRPsbiO5ojJCV4Ab_cfxYS_-jQ)
 10. [拒绝“拿命换钱”！ ．新华网[引用日期2021-01-06]](https://baike.baidu.com/reference/55705065/debdjhwja5ZfHsoCkAkre-S1uc0ERTyaPm7luJ3_lEcJwYX82vSFkVN-bJ83yssALu7-FTwJIwthSmUPmNYvcFA5lskPn2vWtbP4NkQN7t7N)
 11. [经济日报评拼多多事件：鼓励奋斗，也要保护好奋斗者|经济日报|拼多多 ．新浪[引用日期2021-01-06]](https://baike.baidu.com/reference/55705065/802c31zuGO048jUQy-l8OyPgwOEe11HHiw4G9xezf6EYytpVTQzhExzDkSm0rwNflu3CS813B03g19KBymKJyIu7z8EW42OMxxj4Girx40wiOMz1VDZxUNlCxLBjWeYiLqI)
+12. [因为看到同事被抬上救护车我被拼多多开除了[引用日期2021-01-10]](https://www.bilibili.com/video/BV1iT4y1N7AU)
+13. [网传拼多多员工因在网上发布同事被抬上救护车的照片，被管理层逼迫主动辞职、赶出公司？事件真实性如何？[引用日期2021-01-10]](https://www.zhihu.com/question/438581129)
